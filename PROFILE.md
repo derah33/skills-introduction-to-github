@@ -1,1 +1,1 @@
-Welcome to Derah Manyelo's GitHub profile!
+Welcome to my GitHub profile!
